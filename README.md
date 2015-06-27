@@ -1,0 +1,2 @@
+# bisnis
+hanya untuk sendiri
